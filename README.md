@@ -29,7 +29,7 @@ The best places to see in Rhodes are:
 * **Monte Smith**
 * **Acropolis of Rhodes**
 
-## Lindos
+## Lindos [Wiki](https://en.wikipedia.org/wiki/Lindos)
 
 ### [Map route](https://www.google.com/maps/dir/Lindos+Acropolis,+Acropolis+of+Lindos,+Lindos+851+07,+Greece/''/Tempel+der+Athene/@36.0904626,28.0826585,16.22z/data=!4m20!4m19!1m5!1m1!1s0x14950e753b585d45:0x8b56f5d65eada2d0!2m2!1d28.088411!2d36.0914899!1m5!1m1!1s0x14950e74916bf951:0xe28ecfe3e68922bf!2m2!1d28.0871141!2d36.0897928!1m5!1m1!1s0x14950e74d649f5ef:0x8f8ef75d7a65c266!2m2!1d28.0883321!2d36.0909311!3e2)
 
